@@ -10,8 +10,6 @@ ponytown is my comfort media and i grew up on this game. im friendly but shy so 
 
 read strawpage for more info . sign my ata book PLEASE PLEASE PLEASE PLEAS 
 
-***
-
 ## byi/dni
 
 we may block any people that yume our sources
