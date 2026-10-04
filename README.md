@@ -12,12 +12,14 @@ read strawpage for more info . sign my ata book PLEASE PLEASE PLEASE PLEAS
 
 ***
 
+## byi/dni
+
 we may block any people that yume our sources
 
 id rather see you jump than talk to me if you shit talk paraphiles or make jokes about paraphillias/comment about paraphillias without being a paraphile
 
 if you fakeclaim disorders get a job
 
-paratwt/paratt or pro/dark/comshiptwt/tt dni i dont want to interact with those spaces. do not involve me in ship discourse. im neutral and profic.
+paratwt/paratt or pro/dark/comshiptwt/tt stay far away from me i dont want to interact with those spaces. do not involve me in ship discourse. im neutral and profic.
 
 radqueers/radinclus im a transexual critinclus transmed so that tells you what i think of you
