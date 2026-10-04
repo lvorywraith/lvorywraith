@@ -1,4 +1,3 @@
-## whitneys fap cave
 byi/dni at the bottom
 ***
 
