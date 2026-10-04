@@ -20,4 +20,4 @@ if you fakeclaim disorders get a job
 
 paratwt/paratt or pro/dark/comshiptwt/tt dni i dont want to interact with those spaces. do not involve me in ship discourse. im neutral and profic.
 
-radqueers/radinclus im a transexual transmed so that tells you what i think of you
+radqueers/radinclus im a transexual critinclus transmed so that tells you what i think of you
