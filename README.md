@@ -3,7 +3,7 @@ byi/dni at the bottom
 
 renico (ren/nico) or nicholas. we also go by any of our source names. he/him only
 
-fictive in a  CDID system, any of my ponies that has SYS in it is a source pony
+fictive, any of my ponies that has SYS in it is a source pony
 
 ***
 
