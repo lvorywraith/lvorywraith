@@ -14,8 +14,6 @@ i met my wonderful fiance on pt almost 5 years ago . im normally sitting with hi
 
 i work full time, my activity is off and on. ive also lost multiple pt accounts over the years, may end up losing more sigh
 
-read strawpage for more info . sign my ata book PLEASE PLEASE PLEASE PLEAS 
-
 ![](https://i.pinimg.com/1200x/15/27/74/152774c9d407709716ff04ef2a75c120.jpg)
 
 ## byi/dni
