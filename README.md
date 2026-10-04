@@ -5,6 +5,8 @@ renico (ren/nico) or nicholas. we also go by any of our source names. he/him onl
 
 fictive, any of my ponies that has SYS in it is a source pony
 
+so/sp 2(w3)79 enfj
+
 ***
 
 ponytown is my comfort media and i grew up on this game. im friendly but shy so please be patient
