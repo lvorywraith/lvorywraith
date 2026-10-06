@@ -1,4 +1,5 @@
 - renico (ren/nico) or nicholas. we also go by any of our source names. he/him only
+- im a binary trans intersex man
 - fictive, any of my ponies that has SYS in it is a source pony
 - so/sp 2(w3)79 enfj
 
@@ -17,4 +18,4 @@
 - id rather see you jump than talk to me if you shit talk paraphiles or make jokes about paraphillias/comment about paraphillias without being a paraphile
 - if you fakeclaim disorders get a job
 - paratwt/paratt or pro/dark/comshiptwt/tt stay far away from me i dont want to interact with those spaces. do not involve me in ship discourse. im neutral and profic.
-- radqueers/radinclus im a transexual critinclus transmed so that tells you what i think of you
+- radqueers/radinclus or people with "good faith" identities, im a transexual critinclus transmed so that tells you what i think of you
