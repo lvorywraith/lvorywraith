@@ -9,8 +9,6 @@
 - i met my wonderful fiance on pt almost 5 years ago . im normally sitting with him
 - i work full time, my activity is off and on. ive also lost multiple pt accounts over the years, may end up losing more sigh
 
-***
-
 ## byi/dni
 
 - we make kms/kys jokes & reclaim slurs we can say
