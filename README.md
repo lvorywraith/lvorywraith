@@ -12,11 +12,13 @@
 ## byi/dni
 
 - we make kms/kys jokes & reclaim slurs we can say
-- we may block any people that yume our sources
+- we may soft-hide any people that yume our sources
+- i tend to soft-hide (mute chat) rather than fully hide, please hide me if you need.
+- we are transmed, we will likely not interact with nonbinary trans people, femboys, radqueer/radinclus, or pro-good faith & soft hide you
 - id rather see you jump than talk to me if you shit talk paraphiles or make jokes about paraphillias/comment about paraphillias without being a paraphile
 - if you fakeclaim disorders get a job
 - paratwt/paratt or pro/dark/comshiptwt/tt stay far away from me i dont want to interact with those spaces. do not involve me in ship discourse. im neutral and profic.
-- radqueers/radinclus or people with "good faith" identities, im a transexual critinclus transmed so that tells you what i think of you
-- i tend to soft-hide (mute chat) rather than fully hide, please hide me if you need.
+
+  - please interact at ur own caution, discourse will likely result in being hidden. i play this game for relaxation purely not to bicker with ponies
 
 ![](https://i.pinimg.com/1200x/15/27/74/152774c9d407709716ff04ef2a75c120.jpg)
