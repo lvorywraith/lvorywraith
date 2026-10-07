@@ -1,5 +1,5 @@
 - renico (ren/nico) or nicholas. we also go by any of our source names. he/him only
-- im a binary trans intersex man
+- im a binary transexual intersex man
 - fictive, any of my ponies that has SYS in it is a source pony
 - so/sp 2(w3)79 enfj
 
