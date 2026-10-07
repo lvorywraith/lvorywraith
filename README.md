@@ -1,3 +1,5 @@
+### byi
+
 - renico (ren/nico) or nicholas. we also go by any of our source names. he/him only
 - im a binary transexual intersex man . i also freely reclaim the term "hermaphrodite"
 - fictive, any of my ponies that has SYS in it is a source pony
@@ -5,19 +7,22 @@
 
 ***
 
+- we make kms/kys jokes & reclaim slurs we can say
+- we may soft-hide any people that yume our sources
+- i tend to soft-hide (mute chat) rather than fully hide, please hide me if you need.
+- do not involve me in ship discourse. im neutral and profic.
+- we are a trans medicalist
+
+***
+
 - ponytown is my comfort media and i grew up on this game. im friendly but shy so please be patient
 - i met my wonderful fiance on pt almost 5 years ago . im normally sitting with him
 - i work full time, my activity is off and on. ive also lost multiple pt accounts over the years, may end up losing more sigh
 
-## byi/dni
+***
 
-- we make kms/kys jokes & reclaim slurs we can say
-- we may soft-hide any people that yume our sources
-- i tend to soft-hide (mute chat) rather than fully hide, please hide me if you need.
-- we align with transmedicalism, we will likely not interact with nonbinary trans people, femboys, radqueer/radinclus, or pro-good faith & soft hide you
-- id rather see you jump than talk to me if you shit talk paraphiles or make jokes about paraphillias/comment about paraphillias without being a paraphile
-- if you fakeclaim disorders get a job
-- paratwt/paratt or pro/dark/comshiptwt/tt stay far away from me i dont want to interact with those spaces. do not involve me in ship discourse. im neutral and profic.
+- we do not have a dni because we block very freely but here are some reasons why we may have soft hidden you lol
+- pro/dark/comship, reoccurringly talking about fetishs or paraphillias, talking about paraphillias or intersexuality without being a part or neither group, fake claiming disorders, interacting with discourse or being in support of radqueers/radinclus or good faith identities, being a yume of 1 of my or my fiances sources/kins, being a part of a fandom i have a source of
 
 *** 
 
