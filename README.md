@@ -9,7 +9,7 @@
 - i met my wonderful fiance on pt almost 5 years ago . im normally sitting with him
 - i work full time, my activity is off and on. ive also lost multiple pt accounts over the years, may end up losing more sigh
 
-![](https://i.pinimg.com/1200x/15/27/74/152774c9d407709716ff04ef2a75c120.jpg)
+***
 
 ## byi/dni
 
@@ -19,3 +19,5 @@
 - if you fakeclaim disorders get a job
 - paratwt/paratt or pro/dark/comshiptwt/tt stay far away from me i dont want to interact with those spaces. do not involve me in ship discourse. im neutral and profic.
 - radqueers/radinclus or people with "good faith" identities, im a transexual critinclus transmed so that tells you what i think of you
+
+![](https://i.pinimg.com/1200x/15/27/74/152774c9d407709716ff04ef2a75c120.jpg)
