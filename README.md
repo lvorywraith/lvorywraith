@@ -19,7 +19,7 @@
 ***
 
 - we do not have a dni because we block very freely but here are some reasons why we may have soft hidden you lol
-- pro/dark/comship, reoccurringly talking about fetishs or paraphillias, talking about paraphillias or intersexuality without being a part or neither group, fake claiming disorders, interacting with discourse or being in support of radqueers/radinclus or good faith identities, being a yume of 1 of my or my fiances sources/kins, being a part of a fandom i have a source of
+- pro/dark/comship, reoccurringly talking about fetishs or paraphillias, talking about paraphillias or intersexuality without being a part of neither group, fake claiming disorders, interacting with discourse or being in support of radqueers/radinclus or good faith identities, being a yume of 1 of my or my fiances sources/kins, being a part of a fandom i have a source of
 
 *** 
 
