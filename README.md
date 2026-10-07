@@ -1,5 +1,3 @@
-### byi
-
 - renico (ren/nico) or nicholas. we also go by any of our source names. he/him only
 - im a binary transexual intersex man . i also freely reclaim the term "hermaphrodite"
 - fictive, any of my ponies that has SYS in it is a source pony
