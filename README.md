@@ -6,7 +6,6 @@
 ***
 
 - we make kms/kys jokes & reclaim slurs we can say
-- we may soft-hide any people that yume our sources
 - i tend to soft-hide (mute chat) rather than fully hide, please hide me if you need.
 - do not involve me in ship discourse. im neutral and profic.
 - we are a trans medicalist
