@@ -23,6 +23,6 @@
 
 *** 
 
-- please interact at ur own caution, discourse will likely result in being hidden. i play this game for relaxation purely not to bicker with ponies
+- please interact at ur own caution, discourse will likely result in being hidden. i play this game for relaxation purely, not to bicker with ponies
 
 ![](https://i.pinimg.com/1200x/15/27/74/152774c9d407709716ff04ef2a75c120.jpg)
