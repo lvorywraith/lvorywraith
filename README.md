@@ -1,29 +1,17 @@
-- renico (ren/nico) or nicholas. we also go by any of our source names. he/him only
+ - renico (ren/nico) or nicholas. we also go by any of our source names. he/him only
 - im a binary transexual intersex man . i also freely reclaim the term "hermaphrodite"
 - fictive, any of my ponies that has SYS in it is a source pony
 - so/sp 2(w3)79 enfj
 
-***
-
+![](https://64.media.tumblr.com/8514c8b03f5be9a2a0c0eccc78da6d71/d6edc4e5cd1c5657-ba/s400x600/6164a0bccbab41988610394ec5b5047371b0b22e.gifv) ![](https://64.media.tumblr.com/5803df622aa53f07d78fee0553c4054d/d6edc4e5cd1c5657-08/s400x600/cae618cdbd01d9e49b924294cbd9076e45452582.gifv) ![](https://64.media.tumblr.com/7f0c229b5945d2c5a12cbbde95706cd7/d6edc4e5cd1c5657-48/s400x600/8484d0c1a791b2d016ede168dfad796b7c6a289c.gifv)
 - we make kms/kys jokes & reclaim slurs we can say
 - i tend to soft-hide (mute chat) rather than fully hide, please hide me if you need.
 - we do not use tone tags often, let us know if you need them.
-- do not involve me in ship discourse, fiction is fiction. im neutral and profic.
-- we are a trans medicalist
+- do not involve me in ship discourse, fiction is fiction.
+- we are a trans medicalist, interact at your on volition 
 
 ***
 
 - ponytown is my comfort media and i grew up on this game. im friendly but shy so please be patient
 - i met my wonderful fiance on pt almost 5 years ago . im normally sitting with him
 - i work full time, my activity is off and on. ive also lost multiple pt accounts over the years, may end up losing more sigh
-
-***
-
-- we do not have a dni because we block very freely but here are some reasons why we may have soft hidden you lol
-- pro/dark/comship community, reoccurringly talking about fetishs or paraphillias, talking about paraphillias or intersexuality without being a part of neither group, fake claiming disorders, interacting with discourse or being in support of radqueers/radinclus or good faith identities, if talking or interacting with problematic media seems to be 1 of your only personality traits, being a yume of 1 of my or my fiances sources/kins, being a part of a fandom i have a source of
-
-*** 
-
-- please interact at ur own caution, discourse will likely result in being hidden. i play this game for relaxation purely, not to bicker with ponies
-
-![](https://i.pinimg.com/1200x/15/27/74/152774c9d407709716ff04ef2a75c120.jpg)
