@@ -7,6 +7,7 @@
 
 - we make kms/kys jokes & reclaim slurs we can say
 - i tend to soft-hide (mute chat) rather than fully hide, please hide me if you need.
+- we do not use tone tags often, let us know if you need them.
 - do not involve me in ship discourse, fiction is fiction. im neutral and profic.
 - we are a trans medicalist
 
